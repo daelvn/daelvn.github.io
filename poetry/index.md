@@ -2,7 +2,7 @@
 
 ## idioma·language
 
-[español](/poetry/es/index.md) · [english](/poetry/en/index.md)
+[español](/poetry/es/index.html) · [english](/poetry/en/index.html)
 
 
 
