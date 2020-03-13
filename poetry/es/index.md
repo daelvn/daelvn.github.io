@@ -64,7 +64,7 @@
 >
 > (leer en orden)
 
-1. [nueva sangre pt. I](blood-1.html)
+1. [nueva sangre pt. I](angelic/blood-1.html)
 2. [ángeles corruptos](angelic/corrupted.html)
 3. [adiós](angelic/goodbye.html)
 4. [eleva mi cuerpo](angelic/elevate.html)

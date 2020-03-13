@@ -1,84 +1,84 @@
-# elevate my body
+# eleva mi cuerpo
 
-elevate my body
-float me to the moon
-i did all that i wanted
-and i am ready to go
+eleva mi cuerpo
+llévame a la luna
+hice todo lo que quise
+y estoy listo para irme
 
-i was born to the moonlight
-and when we first met Him.
-now i will turn into light
-and reunite with my satellite
+nací a la luz de la luna
+y cuando Le conocimos por primera vez.
+ahora me convertiré en luz
+y me reuniré con mi satélite.
 
-elevate my body
-as i grow wings
-and become what i once destroyed
-it cannot be helped
+eleva mi cuerpo
+mientras me crecen alas
+y me convierto en lo que una vez destruí.
+no hay nada que hacer.
 
-golden shards float around me
-and form the halo that will
-be my window back to life.
-i am ready to go.
+fragmentos dorados flotan a mi alrededor
+y forman el halo que será
+mi ventana a la vida.
+estoy listo para irme.
 
-elevate my body
-as the bells ring,
-as the piano plays,
-as the music box sounds.
+eleva mi cuerpo
+mientras suenan las campanas,
+mientras tocan el piano,
+mientras suena la caja de música.
 
-my lifeless corpse turns into the fog
-that covers the mountains of this land.
-my last tears turn into the rivers
-that feed into the neverending sea.
+mi cuerpo ya sin vida se convierte en la niebla
+que cubre las montañas de esta tierra.
+mis últimas lágrimas en los ríos
+que alimentan el infinito mar.
 
-elevate my body
-i will breathe in peace
-i can feel how i disintegrate
-and my energy goes back to earth
+eleva mi cuerpo
+respiraré en paz
+puedo sentir como me desintegro
+y mi energía vuelve a la tierra
 
-i am creation and i paid my debt
-nothing but my heart remains
-when i observe from the clouds
-what i used to call my home
+soy creación y pagué mi deuda
+ya nada queda más que mi corazón
+cuando observo desde las nubes
+lo que solía llamar hogar.
 
-elevate my body
-as i leave this forest
-i have no reason to be sad
-it is how i wanted to go, after all
+eleva mi cuerpo
+mientras dejo este bosque.
+no hay por que estar triste,
+al fin y al cabo, es así como me quise ir.
 
-my emotions feed into the stardust
-that makes the universe look as it does.
-it will carry on even if
-i already consumed my last breath
+mis emociones alimentan el polvo estelar
+que hace que el universo se vea así
+continuará incluso
+si ya he consumido mi último aliento
 
-elevate my body
-as i prepare to reign the skies
-i am my own god
-i have always been
+eleva mi cuerpo
+mientras me preparo para reinar los cielos
+soy mi propio dios,
+siempre lo he sido
 
-i will place my translucent feet
-on the clouds up above
-but my hair will reach for
-the stars millions of miles away
+colocaré mis pies translúcidos
+en las nubes altas
+pero mi pelo alcanzará
+las estrellas a millones de kilometros
 
-elevate my body
-as the Third waves goodbye
-i know i have made someone happy
-while i was in life
+eleva mi cuerpo
+mientras el Tercero me despide
+se que he hecho feliz a alguien
+mientras estuve con vida
 
-i will use my quill
-to tell the tales of the angel
-that once walked the earth
-to learn to be impure
+usaré mi pluma
+para contar la historia del ángel
+que una vez caminó la tierra
+para aprender a ser impuro.
 
-there's nothing left now
-my body might be buried
-but my soul will stay up here
-waving welcome to anyone who thinks of them
+ya nada queda,
+mi cuerpo podrá estar enterrado
+pero mi alma se quedará aquí,
+saludando a quienquiera que piense en ella.
 
-oh, what have i left in earth,
-nothing but my fading memory.
-my fate is with the stars
-as it always should have been.
+oh, que he dejado en la tierra,
+mas que una memoria efímera.
+mi destino es con las estrellas,
+como siempre debió haber sido.
 
-**because i have turned into my progenitors**
-**and into the land they walked.**
+**porque me he convertido en mis progenitores**
+**y en la tierra que pisaron.**

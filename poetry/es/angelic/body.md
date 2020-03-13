@@ -1,49 +1,49 @@
-# eternal body
+# cuerpo eterno
 
-here lies my gravestone,
-humid and mossy, forgotten.
-its body is already empty,
-there is nothing left.
+aquí yace mi lápida
+húmeda y musgosa, olvidada.
+su cuerpo está ya vacío,
+ya no queda nada
 
-my hands feed into the forest
-beside me, eternally.
-my neck makes the water of the stream
-move much strongly.
+mis manos alimentan el bosque,
+junto a mí eternamente.
+mi cuello hace que el agua del arroyo
+se mueva con mucha más fuerza.
 
-i do not exist corporeally anymore,
-but i do exist in the trees,
-i do exist in the clouds
-and in the lake.
+yo ya no existo corpóreamente,
+pero sí en los árboles,
+sí existo en las nubes
+y en el lago.
 
-i exist in the rain,
-i exist in other minds,
-in other gravestones,
-i will always exist.
+existo en la lluvia,
+existo en otras mentes,
+en otras lápidas,
+siempre existiré
 
-and when the earth
-consumes its last breath,
-i know i will be part of a star,
-i will turn into its core and its light
+y cuando la tierra
+se haya quedado sin tiempo de vida,
+se que formaré parte de alguna estrella,
+me convertiré en su núcleo y en su luz
 
-and if there is life out there,
-and they look into the constellation my star forms,
-my light will reach them, i will exist with them,
-because it travels infinitely without stopping.
+y si es que hay vida fuera de aquí
+y miran la constelación que mi estrella forma,
+mi luz les llegará, existiré con ellos
+porque viaja infinitamente sin cesar.
 
-and the person that puts their gaze in me
-will know i am with them, that they have my strength.
-i will build my legacy for the eternal
-and not for the ephimeral.
+y la persona que ponga su mirada en mi
+sabrá que estoy con ella, que tiene mi fuerza,
+construiré mi legado para lo eterno,
+y no para lo efímero.
 
-leaving a trace in life is useless for me,
-the only infinite things are stars,
-who will welcome me among them
-as just another sibling.
+dejar rastro en vida me es inútil,
+lo único infinito son las estrellas,
+que me acogerán entre ellas
+como una hermana más.
 
-and the cycle will continue forever,
-as long as the sky has stars
-and there is someone to watch them
-as someone looks at their lover.
+y el ciclo continuará eternamente,
+siempre que el cielo tenga estrellas,
+y haya alguien que las contemple
+como alguien mira a su amado.
 
-**and you?**
-**have you looked at the stars today?**
+**¿y tú?**
+**¿has mirado hoy las estrellas?**

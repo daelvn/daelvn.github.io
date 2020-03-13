@@ -1,216 +1,216 @@
-# corrupted angels
+# ángeles corruptos
 
-Your wings are broken, angel,
-why are you here?
-Open your eyes and answer me,
-why does your heart beat again?
+Tus alas están rotas, ángel,
+¿qué haces aquí?
+Abre tus ojos y contéstame,
+¿por qué tu corazón vuelve a latir?
 
-Your golden hair now is just ashes.
-Oh, angel, return with your kind,
-return if you can because
-I can already hear the drums.
+Tu cabello rubio ahora es ceniza.
+Oh, ángel, vuelve con los tuyos,
+vuelve si puedes porque
+ya oigo los tambores.
 
-Here the breeze doesn't run,
-the one you're so used to.
-Oh, angel, breathe deeper,
-if your burden allows you to.
+Aquí no corre la brisa
+a la que tanto estás acostumbrado.
+Oh, ángel, respira más hondo,
+si es que tu carga te lo permite.
 
-You are so weak, angel,
-your chanting is barely heard.
-Oh, angel, scream and
-liberate yourself from your new chains.
+Estás muy débil, ángel,
+tu canto ya apenas se oye.
+Oh, ángel, chilla y
+libérate de tus nuevas cadenas.
 
-Didn't your wings use to fly?
-Didn't you protect me so many nights?
-How deep in lava are you right now?
-Float, levitate, make yourself a way to the new.
+¿Acaso tus alas no solían volar?
+¿No tantas noches me protegías?
+¿Cuán hondo en la lava te encuentras?
+Flota, levita, ábrete paso a lo nuevo.
 
-Your eyes are now black, angel.
-Does your soul not rest now?
-Look around you, praise
-your new jail for your soul.
+Tus ojos ahora son negros, ángel.
+¿Acaso tu alma ya no descansa?
+Mira a tu alrededor, alaba
+tu nueva cárcel de alma.
 
-Your voice is now hoarse.
-Oh, angel, save yourself from the dark,
-save yourself if you can because
-you don't follow your own steps now.
+Tu voz ahora es ronca.
+Oh, ángel, sálvate de las tinieblas,
+sálvate si puedes porque
+ya no sigues tus propios pasos.
 
-You hardly breathe
-and now your halo is dark.
-You yell so loud, angel
-what an incredible ability!
+Respiras con dificultad y
+ahora tu halo es oscuro.
+¡Cómo de alto chillas, ángel,
+que innata habilidad!
 
-Run but the chains will imprison you.
-Run away but the arrows will catch you.
-Scream but the shadows will smother you.
-I invite you to try, angel.
+Corre pero las cadenas te recluirán.
+Huye pero las flechas te alcanzarán.
+Grita pero las sombras te ahogarán.
+Te invito a ello, ángel.
 
-Don't sleep, my angel,
-don't let them catch you sleeping.
-It is then when they attack,
-the riders of the intenal apocalypse.
+No duermas, mi ángel,
+no dejes que te vean durmiendo.
+Es entonces cuando atacan
+los jinetes del apocalipsis interno.
 
-I am sure you are very tired, angel.
-Here, have a cup of my blood.
-Didn't you use to take it away from me
-and now you are rejecting it?
+Seguro que estás cansado, ángel.
+Toma, una copa de mi sangre.
+¿Tanto me la arrancaste
+y ahora la rechazas?
 
-Admit it, you are dead, and
-in your heart only madness remains.
-Where does your God lie now?
-Was not his power the greatest?
+Admítelo, estás muerto, y
+en tu corazón solo queda locura.
+¿Dónde yace ahora tu Dios?
+¿No era su poder el más grande?
 
-But worry not,
-you can already give me your trumpet.
-You will stop tormenting me,
-you will never reign my dreams anymore.
+Pero no te preocupes,
+ya puedes darme tu trompeta.
+Dejarás de atormentarme,
+nunca más en mis sueños reinarás.
 
-You made me impure and
-that is what you will become, angel.
-Louder, scream louder!
-Make yours my contained fury!
+Tú me hiciste impuro y
+así te harás, ángel.
+¡Más fuerte, chilla más!
+¡Haz tuya mi rabia contenida!
 
-It consumes you, it is superior,
-isn't it so, my angel?
-Your skin isn't so smooth,
-nor your hair is so perfect.
+Te consume, te puede,
+¿no es verdad, ángel?
+Tu piel ya no es tan suave,
+ni tu pelo tan perfecto.
 
-Nothing but your heart remains
-and even then, corrupt, it won't be removed.
-You will pay for the sins
-you were so eager to fight against.
+Ya nada queda más que tu corazón,
+y aun así, corrupto, no lo eliminarán.
+Pagarás por los pecados
+contra los que tanto anhelabas luchar.
 
-Suffer, suffer in front of me
-like I did in front of you.
-I will look in the distance
-like you did for me.
+Sufre, sufre delante mía
+como yo lo hice delante de tí.
+Yo miraré desde la distancia
+igual que tu hiciste por mi.
 
-I will wipe your tears
-but I won't give up on you.
-You promised me salvation,
-but you only gave me sin.
+Te secaré las lágrimas,
+pero no te daré tregua.
+Me prometiste la salvación
+pero solo me diste pecado.
 
-Now it is I who wins,
-in this cold, cold and empty room.
-God bless your soul,
-he has not blessed mine.
+Ahora quien gana soy yo,
+en esta sala fría, fría y vacía.
+Que Dios bendiga tu alma
+porque no bendijo la mía.
 
-I will break your holy heart
-until it bleeds, it bleeds and dies.
-My hero, my legend,
-my fall, my death.
+Romperé tu corazón sagrado
+hasta que sangre, sangre y muera.
+Mi salvador, mi leyenda,
+mi caída, mi muerte.
 
-Look at yourself, you are broken, angel,
-and broken toys are not
-liked by anybody.
-You are nothing but trash now.
+Mírate, estás roto, ángel,
+y los juguetes rotos ya
+no gustan a nadie.
+No eres más que basura ahora.
 
-Look at yourself, you are crazy, angel,
-you do not know what you are saying,
-but I know very well how much you curse me,
-or didn't you see my luck?
+Mírate, estás loco, ángel,
+ya no sabes lo que dices,
+pero yo bien sé lo mucho que me maldices,
+¿o no has visto mi suerte?
 
-You died in my hands,
-I do npt need you anymore,
-now I am the owner of my destine,
-now you will not manipulate us anmore.
+Has muerto en mis manos,
+ya no te necesito,
+ahora soy dueño de mi destino,
+ahora dejarás de manipularnos.
 
-You are gushing sweat, crying blood,
-you are miserable and you are agonizing.
-That is how you used to see me
-but you never did anything about it.
+Chorreas sudor, lloras sangre,
+eres miserable y estás moribundo.
+Así es como tú me veías
+pero nunca hiciste nada.
 
-Your cries are worhtless to me now,
-you only speak trash and tell deceits.
-My only angel is me,
-you last-longing impostor.
+Tus llantos no me sirven de nada,
+sólo hablas basura y dices decepciones.
+Mi único ángel soy yo,
+duradero impostor.
 
-Look how the destroyed souls
-of your friends are celebrating.
-Grey bodies in yellowish linen
-who sing and dance in circles.
+Mira como las almas destruidas
+de tus amigos lo festejan.
+Cuerpos grises en lino amarillento
+que cantan y bailan en círculos.
 
-Wouldn't you like to join them?
-It is a shame, for you will stay
-with me and only with me.
-That's what you said in my childhood, traitor.
+¿No te apetece unirte a ellos?
+Es una pena, pues seguirás
+conmigo y solo conmigo.
+Así dijiste en mi infancia, traidor.
 
-Does not the melody of
-all of us kids who ever sang
-to you stay in your mind?
-Does it not ashame you?
+¿No se te queda en la mente
+la melodía de todos los niños
+que alguna vez te cantamos?
+¿No te da pena?
 
-Rot, angel, rot
-in my soul! You will not escape.
-You will not hurt anyone
-else ever again.
+¡Púdrete, ángel, púdrete
+en mi alma! No saldrás.
+No volverás a hacerle daño
+a nadie nunca más.
 
-Your soul is sinking,
-and your heart barely pumps.
-Forever together, angel,
-forever together.
+Tu alma está hundida
+y tu corazón apenas late.
+Siempre juntos, ángel,
+siempre juntos.
 
-Here, use your lyre,
-let me hear your voice.
-Sing to me one of these lullabies
-to calm the pain.
+Toma, usa tu lira,
+que oiga tu voz.
+Cántame una de esas nanas
+para calmar el dolor.
 
-Dead as you are sacred,
-agonizing as your God is high.
-Be born, come out of your chrysalis,
-fly, little angel, fly.
+Tan muerto como eres sagrado,
+tan agonizante como tu Dios es alto.
+Nace, sal de tu crisálida.
+Vuela, pequeño ángel, vuela.
 
-Do you hear the roaring? It is them.
-They devoured my soul and
-they will not hesitate to come.
-You will feel them.
+¿Oyes los rugidos? Son ellos.
+Ellos devoraron mi alma y
+no tardarán en venir.
+Los sentirás.
 
-They will chew on you
-until their teeth are numb.
-They will drink your poison
-as much as you perish.
+Te morderán hasta que dejen
+de sentir sus propios dientes.
+Beberán de tu veneno
+tanto como tu cuerpo perece.
 
-I am broken too.
-Look at me, stare at me.
-Deign to look at my eyes,
-your morbid creation.
+Yo también estoy roto.
+Mírame, contémplame.
+Dígnate a mirar a los ojos
+a tu mórbida creación.
 
-I will drag you, I will drag you
-until your face is no
-different from mine.
-You will not last, you will not last.
+Te arrastraré, te arrastraré
+hasta que tu cara no sea
+nada diferente a la mía.
+No tardaré, no tardaré.
 
-Your chains are open, angel,
-let us see how do you walk,
-let us see how do you take vengeance
-if you do not obey me already.
+Tus cadenas están abiertas, ángel,
+veamos cómo caminas,
+veamos cómo cobras venganza
+si es que aún no obedeces.
 
-Sing to me in your celestial language,
-breathe your divine air.
-Purify your wounds,
-are you not free now?
+Cántame en tu idioma celestial,
+respira tu aire divino.
+Purifica tus heridas,
+¿acaso no eres ya libre?
 
-Look at me! I am your creation!
-I am your demon! You made me like this!
-Touch my horns! Do not feel pity!
-Oh, my poor angel, poor you.
+¡Mírame! ¡Soy tu creación,
+soy tu demonio, así me hiciste!
+¡Toca mis cuernos, no sientas pena!
+Oh, mi pobre ángel, pobre de ti.
 
-Get on your knees and pray to me,
-just as I did to you.
-Realize how useless
-were your healing prayers.
+Arrodíllate y rézame,
+tal y como yo te hacía.
+Date cuenta de lo inútiles
+que eran tus plegarias sanadoras.
 
-Poison, they were poison
-that corrupted my soul
-and it will now corrupt
-your divine and sacred temple.
+Veneno, eran veneno
+que corrompió mi alma,
+y que ahora corromperá
+tu templo divino y sagrado.
 
-Oh my angel, my hero,
-pardon my sins as you
-also pardoned the
-sinners who killed me.
+Oh mi ángel, mi salvador,
+perdona mis pecados como
+también perdonaste a los
+pecadores que me mataron.
 
-You are nothing but garbage,
-you are nothing but dust.
-Cough. Spit. Disappear.
-Die and never come again.
+No eres más que escoria,
+no eres más que polvo.
+Tose, escúpe, desaparece.
+Muere para siempre.

@@ -1,74 +1,74 @@
-# elevate my soul
+# alma eterna
 
-heaven is lonely
-when there is only you to share it.
-where are all the people?
-where are all the promises?
+el cielo es solitario
+cuando solo estoy yo para compartirlo.
+¿dónde está todo el mundo?
+¿dónde están las promesas?
 
-it pours down in earth
-and it is the first rain
-that my body won't be able
-to touch, to feel, to cry
+llueve a cántaros en la tierra
+y es la primera lluvia
+que mi cuerpo no podrá
+tocar, sentir, llorar.
 
-and when i look to the forest,
-everything is flooded, lost,
-but that doesn't matter now,
-and i don't think it ever did.
+y cuando miro al bosque
+todo está inundado, perdido,
+pero eso ahora no importa
+y no creo que nunca lo hiciera.
 
-i don't know what to do
-now that all i've got is myself.
-i'm not used to the feeling,
-even my body has changed.
+no se que hacer
+ahora que lo único que tengo es a mi mismo.
+no estoy acostumbradx a la sensación,
+incluso mi cuerpo ha cambiado.
 
-i can finally feel the teeth
-that bite sharply and fiercely.
-i can finally feel the wings
-that fly far from here.
+por fin puedo sentir los dientes
+que muerden afiladamante y ferozmente.
+por fin puedo sentir las alas
+que vuelan lejos de aqui.
 
-but i'm empty with noone
-by my side, so empty.
-it's almost like a piece of me
-is simply gone and missing.
+pero estoy solo sin nadie
+a mi lado, tan solo.
+es como si una pieza de mi
+estuviera desaparecida.
 
-and i wonder if He felt the same
-when He chose me, empty.
-i wonder what drove Him to me,
-to my heart and my forest.
+y me pregunto si Él sintió lo mismo,
+cuando me eligió, vacío.
+me pregunto que Le condujo a mi,
+a mi corazón y mi bosque.
 
-would i climb to the pinnacle of hypocrisy?
-would i use my consciousness
-to further instigate the empty promises
-of a salvation that is never coming?
+escalaría yo al pináculo de la hipocresía?
+usaría yo mi conciencia
+para instigar las promesas vacías
+de una salvación que nunca llegará?
 
-no, i'm not like that angel,
-i'm much better than that.
-i'm what He would have wanted,
-i'm the next in the chain.
+no, no soy como ese angel,
+soy mucho mejor que eso,
+soy lo que Él hubiera querido,
+soy el próximo en la cadena.
 
-but why, in a world set free of rules,
-and liberated from all humanity,
-would i decide to be pure?
-i don't know how to answer.
+pero por qué, en un mundo libre de normas,
+y liberado de toda humanidad
+decidiría yo ser purx?
+no sé como responder a esa pregunta.
 
-but i am, and that's what matters,
-this is why i was elevated for,
-this is my purpose,
-my path, my rain, my fall.
+pero lo soy, y es lo que importa.
+por eso me elevaron,
+ese es mi propósito.
+mi camino, mi lluvia, my caída.
 
-whatever i was born for, it is
-not from earth, it is here,
-here is where my memory will last
-and here is where i will perform.
+por lo que sea para lo que nací, no es
+desde la tierra, es aquí,
+es aquí donde mi memoria perdurará,
+y es aquí donde yo actuaré.
 
-i tried so many times down there,
-but i simply couldn't connect:
-a broken angel breaks people,
-corrupted angels corrupt mortals.
+lo he intentado tantas veces allá abajo,
+pero simplemente no podía conectar:
+un ángel roto rompe gente,
+ángeles corruptos corrompen mortales.
 
-i can go back again, finally,
-but in a different form, i understand.
-i am no mere mortal anymore,
-i have found my purpose.
+ya puedo volver, finalmente,
+pero en una forma diferente, entiendo.
+ya no soy un mero mortal,
+he encontrado mi propósito.
 
-**i am the angel with the whitest wings**
-**i am no other than the Fourth.**
+**soy el ángel de las alas más blancas.**
+**no soy otro que el Cuarto.**

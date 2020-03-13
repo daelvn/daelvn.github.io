@@ -64,7 +64,7 @@
 >
 > (read in order)
 
-1. [new blood pt. I](blood-1.html)
+1. [new blood pt. I](angelic/blood-1.html)
 2. [corrupted angels](angelic/corrupted.html)
 3. [goodbye](angelic/goodbye.html)
 4. [elevate my body](angelic/elevate.html)

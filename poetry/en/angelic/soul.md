@@ -1,4 +1,4 @@
-# elevate my soul
+# eternal soul
 
 heaven is lonely
 when there is only you to share it.

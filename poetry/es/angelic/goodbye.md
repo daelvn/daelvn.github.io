@@ -1,128 +1,128 @@
-# goodbye
+# adiós
 
-rain, rain and more rain.
-what would it be of my body,
-buried in a mossy tombstone,
-without water that washes my sin.
+lluvia, lluvia y más lluvia.
+que sería de mi cuerpo
+sepultado en una lápida musgosa
+sin agua que lave mis pecados.
 
-and my phantom would wander
-that eternal and autumnal forest,
-even if it's only once again,
-from the beginning to the end.
+y mi fantasma recorrería
+ese bosque eterno y otoñal,
+aunque sea sólo una vez más
+desde el principio hasta el final.
 
-i would wake from my grave
-to walk for the last time
-to the stream of the freshest water
-that my hands had ever touched.
+así me levantaría de mi tumba
+para caminar por última vez
+hasta el arroyo de agua más fresca
+que mis manos hayan podido palpar.
 
-it leads to a small lake
-surrounded by no more than spruce and stone,
-with a row boat,
-to end up as far as possible.
+este da a un pequeño lago
+rodeado por nada más que pinos y piedras,
+con una barca de remo
+para acabar lo más lejos posible.
 
-i guide myself through the mist
-using the voices that have always called me.
-if i don't see you anymore in earth
-i hope that this is my destiny.
+me guío entre la niebla
+por las voces que siempre me han llamado.
+si no te veo más en tierra
+espero que este mi destino sea.
 
-because there's no place more silent,
-no fresher air,
-no calmer soul
-than mine in this place.
+porque no hay lugar más silencioso,
+no hay aire más fresco,
+ni alma más tranquila
+que la mía en este lugar.
 
-back to the forest, i take the path.
-i know where it will take me
-but i walk it as if
-i had never stepped on it before.
+vuelta al bosque, tomo el camino.
+sé dónde este sendero me va a llevar
+pero yo lo camino como si
+no lo hubiera pisado nunca.
 
-and my already ethereal body
-would present itself there,
-in front of the cabin
-that appears in all of my dreams.
+y mi cuerpo ya etéreo
+se presentaría allí,
+frente a la cabaña
+que aparece en todos mis sueños.
 
-preserved wood with a
-small porch, it is enough.
-i sit in the rocker bench
-singing songs in my mind.
+madera conservada con un
+pequeño porche, es suficiente.
+me siento en el banco balancín
+tarareando canciones en mi mente.
 
-it's a homely cabin, it is small,
-but it has all i need:
-to be alone and, for the last time,
-in peace with my rested soul.
+es una casa sencilla, es pequeña,
+pero tiene todo lo que necesito:
+estar solo y, por última vez,
+en paz y con mi alma descansada.
 
-my eyes would see for the last time
-this place destined for me.
-oh, how will i miss the views
-to my small garden.
+mis ojos verían por última vez
+este lugar destinado para mi.
+como echaré de menos las vistas
+a mi pequeño jardín.
 
-and through one of the windows
-i can see giant mountains
-covered in trees and mist
-of my same transparency.
+y por una de las ventanas
+asoman gigantes montañas
+cubiertas de árboles y niebla
+de mi misma transparencia.
 
-i might have left behind my body
-but i know the raindrops will still calm my soul,
-even if it's just one,
-just one last time.
+podré haber dejado atrás mi cuerpo
+pero sé que las gotas seguirán calmando mi alma
+aunque sea una sola,
+una sola última vez.
 
-and i would sleep in that bed
-surrounded by you, listening to your voice
-to leave you forever,
-even if it's not what i promised.
+y dormiría en aquella cama
+rodeado de ti, oyendo tu voz
+para dejarte para siempre,
+aunque no sea lo que te prometí.
 
-i would gaze at everything amazed,
-the beauty of nature,
-and my soul in its purest state.
-i leave you behind, my dear.
+lo contemplaría todo con asombro,
+la belleza de la naturaleza
+y mi alma en su más puro estado.
+atrás te dejo, mi amado.
 
-and with my last breath i go back to my eternal resting place.
-goodbye, it was a pleasure to meet you.
+y con mi último suspiro vuelvo a mi eterna tumba.
+adiós, fue un placer conocerte.
 
-### related thoughts
+### pensamientos aparte
 
-#### never be seen again
+#### nunca volver
 
-:: i want that the last thing people know of me ::
-:: is that i walked into the forest ::
-:: to never be seen again ::
+:: quiero que lo último que se sepa de mi ::
+:: es que caminé hacia el bosque ::
+:: para nunca volver ::
 
-#### light carries on
+#### rastro
 
-:: put my gravestone in this forest ::
-:: so i can be a part of nature again ::
-:: disintegrate and be one with the earth ::
-:: and perhaps if our planet disappears ::
-:: i trust that i will be part of another star ::
-:: and if there's life on another planet and someone looks at the constellation that my star forms ::
-:: that person will have my power and will know i'm with them ::
-:: i don't want to leave a trace before i die when i can leave a trace in the form of pure light ::
-::[how light carries on endlessly, even after death - saturn - sleeping at last]::
+:: poner mi lápida en este bosque ::
+:: para que pueda volver a formar parte de la naturaleza ::
+:: desintegrarme y hacerme uno con la tierra ::
+:: y si a lo mejor nuestro planeta desaparece ::
+:: confío en que formaré parte de alguna otra estrella ::
+:: y si es que hay vida en otro planeta y miran la constelación que mi estrella forma ::
+:: esa persona tendrá mi poder y sabrá que estoy con ella ::
+:: no quiero dejar rastro antes de morir pudiendo dejar rastro en forma de luz pura ::
+::[la luz viaja infinitamente incluso después de la muerte - saturn - sleeping at last]::
 
-#### promise
+#### promesa
 
-:: during all my childhood but now too ::
-:: i promised the third, my plushes, this constant voice that guards me ::
-:: that i would never leave them, that no matter what i would be with them ::
-:: i'm scared that if i take meds i will stop hearing them ::
-:: i'm scared that if i die, they will disappear along with me ::
-:: that's why i wrote this poem ::
-:: if by any chance i die, i wish destiny would let me walk this forest one last time ::
-:: just one day, go to every place of it with them, "my dear" is no other than my voice ::
-:: my phantom will be out of its grave and sleep in a bed with them like i have done all my life ::
-:: but that would be the last time, and the best of them all ::
-:: when my soul steps on my resting place for the last time, i will disappear forever ::
-:: i will fuse with nature, that is what i desire ::
-:: i don't care about going to a prestigious university anymore ::
-:: i don't care that the world won't remember my name ::
-:: i'm not a good person expecting something in return anymore ::
-:: all i can give i will after i die ::
+:: durante toda mi infancia pero ahora también ::
+:: le he prometido al tercero, a mis muñecos, a esa voz constante que me arropa ::
+:: que nunca les dejaría, que pase lo que pase estaría con ellos ::
+:: tengo miedo de que si me medico deje de oirles ::
+:: tengo miedo de que si muero, desaparecerán conmigo ::
+:: es por eso que escribí este poema ::
+:: si por algún casual muero, ojalá el destino me deje caminar este paraje una última vez ::
+:: un solo día, recorrer todos los lugares junto a ellos, "mi amado" no es nadie más que mi voz ::
+:: mi fantasma sale de la lápida y duerme en una cama con ellos como he hecho toda mi vida ::
+:: pero esa sería la última vez, y la mejor de todas ::
+:: cuando mi fantasma pise mi lápida por última vez desapareceré para siempre ::
+:: me fundiré con la naturaleza, eso es lo que realmente anhelo ::
+:: ya me da igual ir a alguna universidad prestigiosa ::
+:: me da igual que el mundo no recuerde mi nombre ::
+:: ya no soy buena persona esperando algo a cambio ::
+:: todo lo que puedo dar lo daré después de morir ::
 
-#### creation is a debt
+#### deuda
 
-:: creation is a debt ::
-:: when something is created, energy groups itself in a state that is not natural for itself ::
-:: that's why not even the universe is free of debt ::
-:: creation is what frees me from everything bad but i also create debt ::
-:: when i die, if i do, i will pay back that debt ::
-:: all that i have created will come with me to my resting place ::
-:: and will be part of, some day, the perfect mass of energy ::
+:: la creación es una deuda ::
+:: cuando algo se crea, la energía se agrupa en un estado que no es natural para este ::
+:: es por eso que ni el universo está libre de deuda ::
+:: crear es lo que libera a mi persona de males pero creo deuda con la vida ::
+:: cuando muera, si lo hago, toda mi deuda quedará saldada ::
+:: todo lo que he creado irá conmigo a la tumba ::
+:: y volverá a formar parte, algún día, de la perfecta masa de energía ::
