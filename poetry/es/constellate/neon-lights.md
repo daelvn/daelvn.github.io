@@ -1,19 +1,17 @@
-# neon lights
+# luces de neon
 
-the febrile neon lights chase me
-suffocate me in your eyes
-let them shine in the rain
-cover me in your mind
-be the natural light in the artifice
+las febriles luces de neon me persiguen
+ahogame en tus ojos, deja que en la lluvia brillen
+arropame con tu mente, se la luz natural en mi artificio
 
-fall your thunder over my soul
-be my god and give me wings
-let me reach you in the peak of the possible
+caiga tu relámpago sobre mi alma
+se mi dios y dame alas
+dejame alcanzarte en la cima de lo posible
 
-rain your truth over my lie
-be my judge and revoke my sense
-make me see i dont own you
+llueva tu verdad sobre mi mentira
+se mi juez y revocame el sentido
+hazme ver que no me perteneces
 
-the febrile neon lights chase me
-wash me in your word, let it reach me
-tell me you can love me but dont fulfill it
+las febriles luces de neon me persiguen
+lávame en tu palabra, deja que se abra paso
+dime que me puedes querer pero no lo cumplas

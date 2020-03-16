@@ -1,37 +1,37 @@
-# constellate pt. II
+# constelar pt. II
 
-Tell me how far
-I am from your head.
-Tell me how far
-you are from loving me.
+Dime como de lejos
+estoy de tu cabeza.
+Dime como de lejos
+estás de amarme.
 
-So many nights
-building my castles.
-So many fights
-going on in my mind.
+Tantas noches,
+construyendo mis castillos.
+Tantas luchas,
+ocurriendo en mi mente ahora mismo.
 
-I don't understand
-why I can't love you.
-Maybe I do,
-but I don't accept it.
+No entiendo
+por qué no puedo amarte.
+A lo mejor si,
+pero no quiero aceptarlo.
 
-How can I really be so naïve?
-How could I really do this to me?
-Tell me why, tell me why.
+¿Cómo puedo ser tan inocente?
+¿Cómo me puedo hacer esto a mí mismo?
+Dime por qué, dime por qué.
 
-And I would move the stars,
-I would arrange the sky
-for us
-to constellate.
+Y movería todas las estrellas,
+cambiaría todo el cielo
+para que los dos
+podamos constelar.
 
-And I would be so proud
-to die on your way.
-A fake illusion,
-to constellate.
+Y estaría tan orgulloso
+de morir camino tuyo.
+Una falsa ilusion,
+constelar.
 
-Perhaps I don't get it at all.
-Perhaps I don't know what's going on.
-In the sky. In our sky.
+A lo mejor no lo comprendo,
+A lo mejor no se que está ocurriendo,
+en el cielo, en nuestro cielo.
 
-// Because it's a pleasure to share //
-// and to constellate //
+// Porque es un placer compartir //
+// y constelar //

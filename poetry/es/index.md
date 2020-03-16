@@ -37,7 +37,7 @@
 > porque todos tenemos algo que ya no amamos
 
 [remedio para un corazón roto](remedy.html)
-[el tiempo no cura pero estar solo sí](time.html)
+[el tiempo no cura, pero estar solo sí](time.html)
 [tu ganas](win.html)
 
 ## constelar

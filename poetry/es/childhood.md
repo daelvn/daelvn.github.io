@@ -1,51 +1,51 @@
-# to the childhood
+# a la infancia
 
-Golden stars in a violet sky,
-Victorian dressing tables filled with precious jewelry,
-the distant sound of a music box
-that moves my hand writing this poem.
+Estrellas doradas en un cielo color púrpura,
+tocadores victorianos repletos de joyas bellísimas,
+el sonido distante de la caja de música
+que mueve mi mano escribiendo este poema.
 
-A lot of wooden toys in some house in my town,
-it has a chimney and in the sofa he leaves my gifts,
-Santa Claus, when he visits me
-in my eternal Christmas and youth.
+Muchos juguetes de madera en una casa de mi pueblo,
+tiene chimenea y en el sofá deja sus regalos
+Papá Noel cuando me visita
+en mi eterna navidad y juventud.
 
-And all the places are full of lights and trees
-with ornaments in garnet and gold, a lot of rag dolls,
-hand-made by little elves
-who work for me to be happy.
+Todos los lugares están llenos de lúces y árboles
+con adornos en grana y oro, muchos muñecos de
+trapo hechos a mano por pequeños duendes
+que trabajan para que sea feliz.
 
-The sky is painted with watercolor, navy
-blues and purples, stars that shine
-more than ever in the city
-that gazes at them.
+El cielo está pintado con acuarela, azules
+marinos y violetas, estrellas que brillan
+más que nunca en la ciudad
+que las contempla.
 
-And in my bed there are freshly laundered sheets
-in green and decorated with trains
-that carry me to my dreams every night
-and take me back to remember.
+Y en mi cama hay sábanas recién lavadas
+de color verde y decoradas con trenes
+que me llevan a mis sueños cada noche
+y me traen para recordar.
 
-And all my plushes are there, all of them
-have their name and heart, all of them are with me
-and sing me a lullaby so
-that tomorrow the sun will rise.
+Y todos mis muñecos están ahí, todos tienen
+su nombre y corazón, todos me acompañan
+y me cantan una nana para
+que mañana salga el sol.
 
-But I do not get sleepy
-so I talk to them and they tell me
-ll of their adventures and all of their travels
-and I smile thoughtfully while they talk to me.
+Pero no me entra el sueño
+así que hablo con ellos y me cuentan
+todas sus aventuras y todos sus viajes
+y yo sonrío atentamente mientras me lo cuentan.
 
-And the chimney, its warm fire illuminates
-the furniture that smells like wood from
-my bed. And the angels with immense wings
-tuck me in my bed and sing another lullaby.
+Y la chimenea, su cálido fuego ilumina
+los muebles que huelen a madera desde
+mi cama. Y los ángeles de alas inmensas
+me arropan y me cantan otra nana.
 
-And I know all of the songs and I
-whisper them while they sing.
-And my eyelids close slowly until
-I wake up and it is a new day.
+Y yo me sé todas las canciones y las
+susurro mientras ellos las recitan.
+Y se me cierran los párpados hasta
+que me levanto y es un nuevo día.
 
-And there are still wooden toys,
-and interesting books, and stories to get lost in,
-and many music boxes that tell me stories,
-while I spend the afternoon in my pajamas.
+Y siguen habiendo juguetes de madera,
+y libros interesantes e historias en las que perderme
+y muchas cajas de música que me cuentan historias
+mientras paso la tarde tranquilo en pijama.

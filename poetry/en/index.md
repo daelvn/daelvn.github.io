@@ -70,6 +70,7 @@
 4. [elevate my body](angelic/elevate.html)
 5. [eternal body](angelic/body.html)
 6. [eternal soul](angelic/soul.html)
+7. [[interlude]](angelic/interlude.html)
 
 ## other
 

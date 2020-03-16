@@ -1,62 +1,62 @@
-# come with the water
+# ven con el agua
 
-the stars weren't as bright
-as you weren't by my side.
-my skin didn't feel calm
-as you stayed in your mind.
+las estrellas no brillaban tanto
+ porque no estabas a mi lado.
+ mi piel no estaba tan tranquila
+ porque estabas en tu propia mente.
 
-i got to sing the song that i'd written
-but you weren't there to hear it.
-i got to cry the tears that i'd save
-but you weren't there to soothe them.
+ conseguí cantar la canción que escribí,
+ pero no estabas ahí para oirla.
+ conseguí llorar las lágrimas que guardé
+ pero no estabas ahí para secarlas.
 
-i wish... i had... a piece... of you...
-i wish... i had... told you... in time...
+ ojalá... tuviera... una parte... de ti...
+ ojalá... te lo hubiera... dicho... a tiempo...
 
-but i won't ever find you
-and i won't ever love you
+ pero nunca te encontraré
+ y nunca te amaré
 
-we were born in the wild
-and in the wild we wil die
+ nacimos en lo salvaje
+ y en lo salvaje moriremos.
 
-and i can't ever see you
-each time that you die
+ y nunca te puedo ver
+ cada vez que mueres
 
-we were found in the woods
-and in the woods we will cry
+ nos encontraron en el bosque
+ y en el bosque lloraremos.
 
-i'll let you tie me down,
-trap me, break me,
-let's go wild
+ dejaré que me ates,
+ atrapame, rompeme,
+ enloquece.
 
-it is about all your feral love,
-burn me, leash me,
-let's burn it all
+ se trata de tu amor salvaje,
+ quemame, recluyeme,
+ quemalo todo.
 
-come with the water
-come with the water
+ ven con el agua
+ ven con el agua
 
-here, in my palm, i got something for you.
-it is, just a thought, but i save it always dearly.
-take, it from me, you can have it always granted.
-make, one for me, and i'll place it in my mind
+ aquí, en mi mano, tengo algo para ti
+ lo es, un recuerdo, pero lo guardo con cariño
+ tomalo, de mi, siempre te lo podrás llevar
+ crea, para mi, y lo guardaré en mi mente
 
-and i won't ever find you
-and i won't ever love you
+ y nunca te encontraré
+ y nunca te amaré
 
-we were born in the wild
-and in the wild we will die
+ nacimos en lo salvaje
+ y en lo salvaje moriremos
 
-and i can't ever see you
-each time that you die
+ y nunca te puedo ver
+ cada vez que mueres
 
-we were found in the woods
-and in the woods we will cry
+ nos encontraron en el bosque
+ y en el bosque lloraremos.
 
-come with the water
-come with the water
-come with the water
-come with the water
+ ven con el agua
+ ven con el agua
+ ven con el agua
+ ven con el agua
 
-shed... a tear...
-and come with the water
+ derrama... una lágrima...
+ y ven con el agua

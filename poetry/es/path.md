@@ -1,44 +1,44 @@
-# path
+# camino
 
-The path starts in education
-and the walkers are the children.
-The horizon has no limit
-and the sailors are the outlaws.
+El camino empieza en la educación
+y el caminante son los hijos.
+El horizonte no tiene límite
+y el navegante son los bandidos.
 
-More than injured rebels
-by the people who put them at shooting range.
-They may think, but they
-will never walk the path of oblivion.
+Rebeldes más que heridos
+por la gente que los pone a tiro.
+Podrán pensar, pero ellos
+nunca caminarñan la senda del olvido.
 
-Child, put on your shoes,
-I'll take you on a walk.
-If the parents don't do it,
-someone will have to educate them instead.
+Niño, ponte los zapatos,
+que te llevo a caminar.
+Si no lo hacen los padres,
+alguien los habrá de educar.
 
-Walk towards the beasts
-and stab them with your knife.
-If you don't do it,
-someone will have to save us instead.
+Camina hacia las bestias
+y clávales tu puñal.
+Si no lo haces tú,
+alguien nos habrá de salvar.
 
-The miserable remains one
-if nobody lets them walk.
-Let them silence us, let them silence us,
-we will start to shout.
+El miserable lo sigue siendo
+si nadie le deja caminar,
+Que nos callen, que nos callen,
+empezaremos a gritar.
 
-Walker, there's always a way
-as long as you make it be seen.
-Walker, guide your steps
-since in ten years we'll perish.
+Caminante, camino siempre hay
+mientras tú lo hagas ver.
+Caminante, guía tus pasos
+que en diez años vamos a perecer.
 
-What is an unread book
-but a pile of paper?
-What is a forest without trees
-but a place to build?
+¿Qué es un libro sin leer
+más que un montón de papel?
+¿Qué es un bosque sin árboles
+más que un sitio para construir?
 
-History repeats itself
-because they want it to repeat.
-These cries repeat themselves
-because nobody else cries for Earth.
+La historia se repite
+porque ellos quieren que se repita.
+Estos llantos se repiten
+porque nadie más por la tierra llora.
 
-**Walk towards the beasts**
-**and someday you will come back.**
+**Camina hacia las bestias**
+**que algún dia volverás.**

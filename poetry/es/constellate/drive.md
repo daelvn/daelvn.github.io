@@ -1,70 +1,70 @@
-# drive
+# conduce
 
-Driving away,
-none to little faith.
-Stars that will light my face,
-blades that will cry my death.
+Conduciendo hacia lo lejos,
+ni una pizca de fe.
+Estrellas que iluminarán mi cara,
+cuchillas que llorarán mi muerte.
 
-I feel alone,
-I'm all alone...
+Me siento solo,
+estoy solo.
 
-Friends I go out with.
-Confidence, it's all a myth.
+Amigos con los que salgo.
+Autoestima, es todo un mito.
 
-I feel my heart.
-Can you feel it now?
+Yo siento mi corazón,
+¿puedes sentirlo ahora?
 
-One more mile, one more mile
-and I'll be out.
-Let's not be loud.
+Una milla más, una milla más
+y saldré de aquí.
+Estemos en silencio.
 
-One more mile, one more mile
-to see the day,
-or to fade away.
+Una milla más, una milla más
+para poder ver el día,
+o desaparecer para siempre.
 
-Things to be undone,
-just a mile more.
+Cosas que deshacer,
+solo una milla más.
 
-Make up your mind.
-Is this my heart?
+Decídete,
+¿es este mi corazón?
 
-Feelings that can't be parsed,
-a ground that's so coarse.
+Sentimientos que no son reconocidos,
+un suelo que es tan seco.
 
-I've lost my head,
-a war was led.
+He perdido la cabeza,
+se ha perdido una guerra.
 
-Nothing feels real,
-I'm the one he wants to kill.
+Nada se siente real,
+soy el que quiere matar.
 
-I pour my thoughts,
-can you see it now?
+Vuelco mis sentimientos,
+¿los ves ahora?
 
-One more mile, one more mile
-and I'll be out.
-Let's not be loud.
+Una milla más, una milla más
+y saldré de aquí.
+Estemos en silencio.
 
-One more mile, one more mile
-to see the day,
-or to fade away.
+Una milla más, una milla más
+para poder ver el día,
+o desaparecer para siempre.
 
-A heart that skips a beat,
-a brain that thinks of me.
+Un corazón que se le pase un latido,
+un cerebro que piense en mi.
 
-It's all I need,
-just someone here.
+Es todo lo que pido,
+solo alguien aquí.
 
-// I see the exit //
-// I drive out //
-// Not my place //
-// Not my heart //
-// They tore it apart //
-// They tore me apart //
+// Veo la salida //
+// Me dirijo hacia ella //
+// No es mi sitio //
+// No es mi corazón //
+// Ellos me lo rompieron //
+// Ellos me rompieron //
 
-One more mile, one more mile
-and I'll be out.
-Let's not be loud.
+Una milla más, una milla más
+y saldré de aquí.
+Estemos en silencio.
 
-One more mile, one more mile
-to see the day,
-or to fade away.
+Una milla más, una milla más
+para poder ver el día,
+o desaparecer para siempre.

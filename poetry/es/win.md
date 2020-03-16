@@ -1,49 +1,49 @@
-# you win
+# tú ganas
 
-you've got what you wanted.
-even though it's gone now,
-you know that you won
-in the depths of my mind.
+ya tienes lo que querías,
+incluso si ya no existe,
+sabes que has ganado
+en lo más profundo de mi mente.
 
-now with each passing day
-i crave more for interaction,
-but i'm being left alone
-by the people i used to trust.
+ahora con cada día que pasa
+echo más de menos la interacción,
+pero me están dejando solo
+la gente en la que solía confiar.
 
-and that is when you made your move,
-in the moment i most need someone to talk,
-you creep in my mind,
-waiting for me to come back to you.
+y es entonces cuando moviste ficha
+en el momento en el que más necesitaba a alguien para hablar,
+entraste en mi mente,
+esperando a que vuelva a ti.
 
-a message so carefully crafted
-so you know i'd be back in barely a month
-even though your last messages
-would beg to differ.
+un mensaje tan cuidadosamente creado
+que sabías que volvería en apenas un mes,
+incluso si tus últimos mensajes
+dicen lo contrario.
 
-but you got rid of these too,
-don't worry, i got pictures
-to remind myself how much you really hate me
-before sending you the first message.
+pero también te deshiciste de ellos,
+no te preocupes, tengo fotos
+para recordarme lo mucho que me odias
+antes de enviarte el primer mensaje.
 
-so if you are reading my words
-i'll let you know that you won.
-i can't get you out of my mind
-and every night i'm at the border of messaging you.
+así que si estás leyendo mis palabras
+te haré saber que has ganado.
+no puedo sacarte de mi mente
+y cada noche estoy al borde de enviarte un mensaje.
 
-the only thing left stopping me
-are my few friends who know about this
-but it won't last long
-and my barriers are going to fall.
+lo único que me lo impide ahora
+son los pocos amigos que saben sobre esto,
+pero no durará mucho
+y mis barreras van a caer.
 
-is this what you really wanted?
-to see me suffer yet again?
-i had forgotten about you,
-i thought i had made it alive.
+¿es esto realmente lo que querías?
+¿verme sufrir otra vez?
+me había olvidado de tí,
+pensaba que había sobrevivido.
 
-but oh i was so wrong,
-little did i know you would come back
-to haunt me in all of my dreams,
-if i even get them anymore.
+pero oh, estaba tan equivocadx,
+no sabía que volverías
+para perseguirme en todos mis sueños,
+si es que los sigo teniendo.
 
-**you win.**
-**see you soon.**
+**tu ganas.**
+**te veo pronto.**

@@ -1,69 +1,69 @@
-# new blood pt. I
+# nueva sangre pt. I
 
-I am scared when I look in the mirror
-because I do not see myself.
-Please, somebody tell me
-what kind of monster have I become.
+Tengo miedo cuando miro al espejo
+porque no me veo a mí mismo.
+Por favor, que alguien me diga
+en qué monstruo me he convertido.
 
-It feels like my body is not mine
-and I do not recognize any of its
-shapes in the dark of the night.
-Please, somebody tell me who am I.
+Siento que mi cuerpo no es mío
+y no reconozco ninguna de sus
+formas en la oscuridad de la noche.
+Por favor, que alguien me diga quién soy.
 
-You are the true master
-of the play, who controls all
-the help that I received,
-but your light is even darker than mine.
+Tú eres el verdadero maestro
+de obra, que controla toda
+la ayuda que me fue proporionada,
+pero tu luz es incluso más oscura que la mía.
 
-Why did the gods give wrath
-to these that hate violence?
-Do they wish to presence
-my divine self-destruction so much?
+¿Por qué los dioses le dieron ira
+al que no desea la violencia?
+¿Tanto desean presenciar mi
+autodestrucción divina?
 
-Let me drink your blood
-and kill me once for all.
-Save me in your dead life.
-New blood, new blood.
+Déjame beber de tu sangre y
+mátame de una vez por todas.
+Sálvame en tu vida muerta.
+Nueva sangre, sangre nueva.
 
-Make me of your kind,
-and let me descend,
-because here the stars shine so bright
-I can't see myself.
+Hazme de tu especie.
+Permíteme descender,
+porque aquí las estrellas brillan tanto
+que no me dejan verme.
 
-Tell them to stop covering my eyes,
-they only want to smother me.
-Please, reveal it to me,
-I must be alive for something else.
+Diles que dejen de nublar mis ojos,
+ellos solo me quieren sofocar.
+Por favor, revélamelo,
+tengo que servir para algo más.
 
-New blood, new blood,
-I only want to live
-so it can rain again.
-I do put my faith in you.
+Nueva sangre, sangre nueva,
+sólo quiero vivir para que
+otra vez llueva.
+En ti sí pongo mi fe.
 
-They are who manipulate me,
- they use me as a window
- and through it they make me kneel.
- Make it stop, make it stop.
+Son los que me manipulan,
+me utilizan de ventana
+y a través de ella me doblegan.
+Haz que pare, haz que pare.
 
- They take control of my body
- and with it they control me,
- with it they hurt me.
- Make it stop, make it stop.
+Toman el control de mi cuerpo
+y con él me controlan,
+con él me agreden.
+Haz que pare, haz que pare.
 
- Master, I know that I am dying,
- you do not need to hide it,
- but I only ask you to save me,
- once again, from this situation.
+Maestro, sé que estoy muriendo,
+no hace falta que lo camufles,
+pero sólo te pido que una vez más
+de esta situación me salves.
 
- Hold my hand during
- the last breath of my life.
- You were born with me and you will go with me:
- the blessing of he who opens portals.
+Sujeta mi mano durante
+el último aliento de mi vida.
+conmigo naciste y conmigo te irás:
+la bendición del que abría portales.
 
- Let me drink your blood
- so I may go with you,
- meet with my true progenitor.
- New blood, new blood.
+Déjame beber de tu sangre
+para que ir contigo pueda,
+reunirme con mi verdadero padre.
+Nueva sangre, sangre nueva.
 
- **I want to hurt it**
- **and I want it to hurt.**
+**Quiero dolerle**
+**y quiero que me duela.**

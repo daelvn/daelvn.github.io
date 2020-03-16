@@ -1,94 +1,95 @@
-# stages
+# etapas
 
-Start of the day:
-I don't want to die
-but I never want to try.
-They say destiny is mine,
-but why would I ever wanna say goodbye?
+Inicio del día:
 
-An art piece, a masterpiece
-that some say it's me,
-always up for going there,
-never down to be here.
+No quiero morir,
+pero nunca quiero intentar vivir.
+Dicen que el destino es sólo mío,
+¿pero por qúe querría decir adiós?
 
-Could be walking down the streets,
-visit the place I want to leave.
-Just want to die somewhere else,
-I'm really such a mess.
+Una pieza de arte, obra maestra,
+así algunos me han llamado.
+Siempre disponible para ir por ahí,
+pero nunca en la tierra para estar aquí.
 
-Somewhere I would rather be
-is something you all can dream.
-Identity as a sin,
-destruction: incomplete.
+Podría estar caminando las calles,
+visitando el lugar que quiero dejar.
+Solo quiero morir en cualquier otro lugar,
+pero estoy hecho un lío.
 
-Shivers take my spine,
-all my fears, they're combined.
-A poem in a frame,
-someone thinks it's lame.
+Donde me gustaría estar es
+en un sitio con el que todos podeis soñar.
+Identidad como un pecado.
+Destrucción: incompleta.
 
-Achievements, finish lanes,
-a race that never ends,
-a future that never bends,
-I can't ever find my friends.
+Escalofríos recorren mi médula,
+todos mis miedos, están combinados.
+Un poema en un marco,
+pero alguien lo ve innecesario.
 
-Broken poets, blank poems,
-empty words in this mode and
-will you find the code?
-To my prison, 101 is the node
-that connects it all,
-pictures in this hall,
-a hole in my wall,
-that my heart used to escape the cage,
-avoid decay, broken veins,
-the mind that wanted fame,
-boxed in a frame, always the same
-I say
+Metas, solo veo metas,
+en una carrera que nunca termina,
+un futuro que nunca se doblega.
+Nunca encuentro a mis amigos.
 
-Second verse:
+Poetas rotos, poemas en blanco,
+palabras vacías de esta forma.
+¿Encontrarás el código?
+De mi prisión, 101 es el nodo
+que lo conecta todo,
+las fotos de este pasillo,
+el hoyo que hay en mi pared,
+que mi corazón utilizó para escapar la celda,
+evitar la decadencia, venas rotas.
+La mente que una vez quiso fama,
+encajada en un marco, siempre es lo mismo,
+al menos eso digo.
 
-I don't want to feel,
-stuck in the loop, "it's not real".
-If I would have myself,
-I would have someone to kill.
+Segunda parte:
 
-Sometimes all things, others nothing,
-never something, makes you think.
-I haven't had a drink,
-I still believe in dreams.
+No quiero sentir,
+atrapado en el búcle: "No es real".
+Si me tuviera a mi mismo
+tendría alguien a quien matar.
 
-Am I still a kid,
-or am I allowed to leave?
-Don't take my life away
-just take it from him.
+A veces todo, otras nada
+nunca algo, te hace pensar.
+No, no he tomado nada,
+yo sigo creyendo en los sueños.
 
-There's the line,
-it's not mine.
-Unallowed to decide,
-I never take pride.
+¿Sigo siendo un niño
+o puedo irme ya?
+No me me quites la vida,
+mejor quitasela a él.
 
-Counting down each verse,
-a text that is so terse.
-"Must be something but it's nothing,
-so I just go back to bed".
+Ahí está la línea,
+pero no es mía.
+Sin permiso para decidir,
+nunca tomo orgullo en ello.
 
-Crying in the floor,
-noone opened the door.
-Meanwhile someone gets poor
-and we say it's a small world.
+Contando cada verso,
+un texto que es tan complejo.
+"Debe de ser algo, pero no es nada
+así que me vuelvo a la cama"
 
-Finding hope in songs,
-that talk about the Lord.
-Do I really believe in
-someone else but my mom?
+Llorando en el suelo
+pero nadie abrió la puerta.
+Mientras tanto alguien cae en la pobreza
+y lo llamamos un mundo pequeño.
 
-She's there, just asleep,
-can't feel anything but my limbs,
-I shaved the other day,
-an order to take away.
+Buscando esperanza en canciones
+que hablan del Señor.
+¿Realmente creo en alguien que
+no sea mi madre?
 
-Preparation to start your day,
-but never help to finish them.
-Hoping for a new sun,
-I just feel so down
+Solo esta ahí, dormida,
+y yo no siento nada menos mis brazos.
+Me depilé el otro día,
+el pedido para llevar.
 
-By the end of the day...
+Preparación para empezar tu día
+pero nunca ayuda para terminarlos.
+Esperando al nuevo sol,
+simplemente me entristezco
+
+al final del día...

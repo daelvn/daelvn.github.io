@@ -1,156 +1,156 @@
-# remedy for a broken heart
+# remedio para un corazón roto
 
-a lie and an "i love you",
-regardless of the order.
-a heart and a promise,
-that end up broken.
+una mentira y un te quiero,
+da igual el orden,
+un corazón y una promesa,
+al final se rompen
 
-**i tried to be perfect,**
-but im never enough,
-i want to give all that is in me,
-but it never works
+**intenté ser perfecto,**
+pero nunca estoy a la altura,
+quiero dar lo mejor que hay en mi
+pero nunca funciona
 
-i tried to heal your cracks,
-that they left behind, convince you
-that nothing was wrong,
-but i couldn't hold it in
+intenté arreglar las roturas,
+que ellos dejaron, convencerte
+de que no pasaba nada,
+pero no lo pude aguantar
 
-i can feel your stare,
-behind any screen,
-i can feel your depth,
-that black that consumes me
+puedo sentir tu mirada,
+detras de cualquier pantalla,
+puedo ver ese oscuro,
+ese negro que me consume
 
-and i feel at the border of a cliff,
-i know that if i keep looking,
-i will fall,
-and otherwise, you will.
+y me siento al borde de un precipicio,
+se que si sigo mirando
+acabare cayendo
+y si no, caerás tú.
 
-i tried to sacrifice myself,
-here i am and so i did,
-i fell backwards,
-sustaining the stare.
+intenté sacrificarme,
+aqui estoy y asi lo he hecho,
+he caido de espaldas
+pero sosteniendo la mirada
 
-and i fell for the same problems
-that i warned you about
-and i fell in the same tricks
-from which i tried to protect you
+y cai en los mismos problemas
+de los que yo te adverti,
+y cai en las mismas trampas
+de las que te intenté proteger
 
-i came down to be able to understand you better,
-to get close even if distant,
-to calm you even if irrelevant,
-because i really care
+he bajado para poder entenderte mejor,
+para poder acercarme incluso distante,
+para poder calmarte incluso irrelevante,
+porque me importa de verdad
 
-but only two kinds of people understand your problems:
-those who have your eyes,
-and those who you killed with your eyes,
-those who you killed
+pero solo dos personas entienden tus problemas:
+aquellas que tienen tus ojos,
+y aquellas a los que mataste con tu mirada,
+aquellos a los que hundiste
 
-im not the only one
-in this abyss,
-people that i almost don't
-get to understand
+no soy la unica persona
+en el fondo de este abismo,
+personas a las que minimamente
+llego a comprender
 
-you saw me fall and i asked you to turn around,
-now i dont see you and darkness consumes my eyes.
-the spiderweb consumes my mind,
-ensuring the most absolute collapse of my state.
+me viste caer y te pedi que dieras la vuelta,
+ahora no te veo y la oscuridad consume mi mirada,
+la telaraña consume mi mente
+procurando el mas absoluto colapso de mi estado
 
-**so many things that i promised**
-that you knew i was incapable of fulfilling,
-for a reason or another,
-i cant be happy
+**tantas cosas te prometi,**
+que sabes que soy incapaz de cumplir,
+por un motivo u otro,
+no puedo ser feliz
 
-many things that i told you,
-that i now regret,
-and now that you're free
-you remember me with bitterness
+tantas cosas te dije,
+de las que ahora me arrepiento,
+y ahora eres libre
+y me recuerdas con amargura
 
-now im just one of them,
-someone you thought understood you,
-but i lied in so many things,
-that i got rid of reality completely
+ahora solo soy uno mas de ellos
+una persona que creiste que te entendia
+pero en tantas cosas menti,
+que me deshice de la realidad por completo
 
-broken heart for no reason,
-i lost it all for losing one thing,
-i wasted it all for wasting your love,
-but i cant accept it
+corazon roto sin motivo,
+perdi todo por perder una cosa
+deseché todo por desechar tu amor,
+pero no lo puedo aceptar
 
-i ask you to follow your heart,
-because it is still full of light,
-it still has wings to fly,
-and i cant hold it anymore
+te pido que sigas tu corazon,
+porque aun sigue lleno de luz,
+aun tiene alas para volar,
+y no lo puedo retener más.
 
-**time for you to get rid of me,**
-time for you to bury me by your tomb,
-time for you to look at me for the last time,
-time for you to say that it's all over
+**hora de que te deshagas de mi,**
+hora de que me entierres junto a tu tumba,
+hora de que me mires por ultima vez,
+hora de que te digas que ya paso
 
-i know how many they were and now im only
-a number,
-another person that allowed themselves to hurt you,
-even when they didn't recognize it
+se cuantos fueron y ahora solo soy
+un numero mas,
+otra persona que se permitio hacerte daño
+incluso cuando no lo reconocía
 
-i was stupid, selfish,
-i didnt believe to be the light that really guides you,
-but now you move on,
-and i lie in my deathplace
+he sido estupido, egoista,
+no he creido ser la luz que realmente te guia,
+pero ahora sigues adelante,
+y yo sigo atrapado en este lecho
 
-time for you to forget me,
-time for your darkness to consume my eyes,
-time for your problems to be mine,
-time for your songs to sing my cries
+hora de que te olvides de mi,
+hora de que tu oscuridad consuma mis ojos,
+hora de que tus problemas sean ahora mios,
+hora de que tus canciones canten mis lloros
 
-i had many attempts,
-and i didnt use any of them.
-people that mattered to me,
-who i would end up destroying
+tuve mas de un intento,
+y ninguno de ellos los aproveché,
+gente que me importaba,
+la cual se que acabaria por destrozar
 
-and i know you two tried to ignore it,
-now i know that nothing was true,
-that it really hurt,
-that you want to forget.
+y se que vosotros dos lo quisisteis ignorar,
+ahora se que nada era verdad,
+que realmente te hirió,
+que me quieres olvidar.
 
-i dont know whether i should move on,
-or return to my roots.
-whether i should continue,
-or face my ghosts.
+no se decirte si debo avanzar,
+o volver a mis raices.
+si debo continuar,
+o enfrentarme a mis fantasmas.
 
-**hate me, step on me,**
-dont remember me as someone who saved you,
-break me, destroy me,
-dont have me as someone kind-hearted
+**odiame, pisame,**
+no me recuerdes como alguien que te salvó,
+rompeme, destrozame,
+no me tengas como alguien de buen corazón.
 
-i dont know if im able to hold someone
-without hurting them.
-i make myself believe not and so
-i get into this abyss alone.
+no se si puedo mantener a alguien
+sin hacerle daño.
+me hago creer que no y asi
+me adentro en este abismo solo.
 
-spit on me, laugh
-at the youth we suffer.
-forget, confess,
-whether you really felt something.
+escupeme, riete,
+de la juventud que sufrimos,
+olvidate, confiesame,
+si tu de verdad sentiste algo
 
-i cant believe that in some years
-you will only be a memory of my childhood,
-of my useless attempts
-of being who i am not
+no puedo creer que en unos años,
+seras un mero recuerdo casi de mi infancia,
+de mis inutiles intentos,
+de ser quien no soy.
 
-**a love that is not corresponded,**
-is what i made you suffer from,
-now i pay the price,
-with your own sufferment.
+un amor no correspondido,
+eso fue lo que te hice sufrir,
+ahora pago por el precio,
+con tu mismo sufrimiento.
 
-i break, i decay, i decompose and i break down,
-many things that i promised,
-many things that wont come true,
-many false hopes that i gave you
+rompo, decaigo, descompongo y me deshago,
+tantas cosas que os he prometido,
+tantas cosas que no se cumpliran,
+tantas falsas esperanzas que os he dado
 
-only for my future to repeat these errors,
-for my person to hate themselves,
-for my body to unappreciate itself,
-for my soul to rebel
+solo para que mi futuro repita estos errores,
+para que mi persona se odie a si misma,
+para que mi cuerpo se desprecie,
+para que mi alma se rebele.
 
-**a remedy for a broken heart,**
-i would wish to give you so that you can ban me from it,
-and the only solution,
-is to break mine
+**un remedio para un corazon roto,**
+desearia darte para que me echaras de el,
+y la unica solucion
+es romper el mio propio.

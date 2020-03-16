@@ -1,52 +1,51 @@
-# stars
+# estrellas
 
-"Homing pigeon, tell me all"
-"Why she doesn't love me so?"
-"Try again for me, just go"
-"Where did I go wrong?"
+"Paloma mensajera, cuéntamelo todo"
+"¿Por qué no me quiere como yo la quiero?"
+"Intentalo otra vez por mí, sólo ve."
+"¿En qué me habré equivocado?"
 
-Your blood painted the moon red.
-The symbol of the lovers stained with death.
-A look so cruel, bulletproof,
-but you weren't.
+Tu sangré pintó la luna de rojo.
+El símbolo de los amantes manchado de muerte.
+Una mirada tan cruel, a prueba de balas,
+pero tú no lo eras.
 
-But you weren't.
+Tú no lo eras.
 
-// They shot one down but we were there for you. //
-// Gunshot wounded, howling at the moon. //
-// A night so clear, a moon so red. //
-// Stars. //
+// Dispararon a uno pero estabamos allí para ti. //
+// Herido de bala, aullando a la luna. //
+// Una noche tan clara, una luna tan roja. //
+// Estrellas. //
 
-"Homing pigeon, tell me all"
-"Why can't she just love me so?"
-"Will I get well tomorrow?"
-"It just takes courage"
+"Paloma mensajera, cuéntamelo todo"
+"¿Por qué ella no me amará?"
+"¿Me recuperaré mañana?"
+"Solo necesito coraje."
 
-You were angry, showing teeth,
-them so sharp and you were hungry.
-"There's no food", you said bluntly,
-and you felt scared.
+Estabas enfadado, mostrando tus colmillos,
+ellos tan afilados y tenías hambre.
+"No hay comida", dijiste secamente,
+te sentías asustado.
 
-You felt scared.
+Te sentías asustado.
 
-// You hit the wall and shouted at the cruel. //
-// The sound of music hunted you for good. //
-// We were alone, I told you, "look". //
-// Stars. //
+// Le pegaste a la pared y le gritaste a los crueles. //
+// El sonido de la música te pudo cazar. //
+// Estabamos solos, te dije, "mira". //
+// Estrellas. //
 
-We sat down against the wall,
-all your friends started to come.
-There's some demons that won't go,
-you had bloodthirst.
+Nos sentamos contra la pared,
+y todos tus amigos empezaron a venir.
+Hay algunos demonios que no se quieren ir,
+y tenías sed de sangre.
 
-I told you to look at the sky.
-There was no light but there were stars.
-You lost control and I saw
-the calm that's coming.
+Te dije que miraras al cielo.
+No habían luces pero sí estrellas.
+Perdiste el control y yo vi la calma que venía.
 
-The calm that's coming.
+La calma que venía.
 
-// You felt the purple that I built for you //
-// Watch the big dipper, in a ground so smooth //
-// I wish that I could've held your hand //
-// Stars. Stars. //
+// Sentiste el hogar que construí para ti. //
+// Contempla la osa mayor, en un suelo tan bueno. //
+// Ojalá hubiera sostenido tu mano. //
+// Estrellas. Estrellas. //

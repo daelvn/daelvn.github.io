@@ -1,17 +1,17 @@
-# constellate pt. I
+# constelar pt. I
 
-a night was worth ten
-you pulled me close and left me hanging
-wanted more but you were gone
+una noche me valió por diez
+me acercaste y me tuviste colgando
+quería más pero desapareciste
 
-nothing in return and i watched the look in your eyes
-while i put my eyes on you
-but yours shined for another star
+no soy correspondido y presencié tu mirada
+mientras yo ponía mis ojos en ti
+pero los tuyos brillaban por otra estrella
 
-i didnt realize and soon i fell
-you caught me in your net and i cant get out
-but you have no part for me
+no me di cuenta y pronto caí
+me atrapaste en tu red y no puedo salir
+pero no tienes parte para mí
 
-im sorry if i smothered you
-sometimes i wish
-i’d never been born
+perdon si te ahogué
+pero a veces desearía
+no haber nacido

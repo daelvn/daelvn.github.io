@@ -1,44 +1,44 @@
-# a pencil
+# un lápiz
 
-a pencil is all you need
-to start a revolution.
-two people, all you need
-to share an emotion.
+un lápiz es todo lo que se necesita
+para empezar una revolución
+dos personas, todo lo que se necesita
+para compartir una emoción
 
-the sea is not deep
-if you only float in it.
-nobody is going to complain
-as long as they get well fed.
+el mar no es profundo
+si solo flotas en él.
+nadie se va a quejar
+mientras les den de comer.
 
-what you see nor what you hear
-can be trusted, you don't know it.
-there's more than one perspective,
-and some take it to their deathbed.
+ni lo que ves ni lo que oyes
+puedes confiar, no lo conoces.
+perspectivas hay más de una,
+y algunos la llevan a la sepultura.
 
-if you wake up and seeing hurts,
-don't stop seeing, improve what you see.
-an empty hand doesn't give warmth
-but it's better if it's more than a hundred.
+si te despiertas y mirar te duele,
+no dejes de ver, mejora lo que ves.
+una mano vacía no calienta
+pero es mejor si son más de cien.
 
-i share my message,
-i leave myself in debt,
-to give that warmth
-to the people surrounded by ice.
+yo comunico mi mensaje,
+me dejo a mí mismo en deuda
+para dar ese calor
+a la gente rodeada de hielo.
 
-what we create is a mirror
-that reflects reality just as
-we see it,
-and i have many.
+lo que creamos es un espejo
+que refleja la realidad, tal y como
+nosotros la vemos,
+y yo tengo muchos.
 
-if you are like me, free,
-and don't adhere to conventional rules.
-you understand this message as a whole.
-you might be like me but always you.
+si eres como yo, libre,
+y a las reglas convencionales no adhieres,
+comprendes al completo el mensaje.
+serás como yo pero siempre tú.
 
-and if the kids don't know
-that we're there for them
-they will have to start from scratch,
-suffering and from the beginning.
+y si los niños no saben
+que estamos ahí para ellos
+tendrán que empezar desde el principio,
+sufriendo y todo de cero.
 
-**a pencil is all you need**
-**to start a revolution.**
+**un lápiz es todo lo que se necesita**
+**para empezar una revolución.**

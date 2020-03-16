@@ -1,34 +1,34 @@
-# guide
+# guía
 
-Walk under the starry
-night and ask him:
-What is above you
-if you do not know it?
+Camina bajo la noche
+estrellada y pregúntale:
+¿qué habrá encima tuya
+si no lo conoces?
 
-Breathe the fresh and
-humid air of the forest.
-Who guides your steps
-towards the unfortunate landing?
+Respira el aire fresco
+y húmedo del bosque.
+¿Quién guía tus pasos
+hacia el desafortunado desembarque?
 
-Touch their ghost and
-feel the shivers.
-Who guides your heart,
-powerful so silently?
+Palpa su fantasma y
+siente el escalofrío.
+¿quién guía tu corazón,
+poderoso con tal sigilo?
 
-Homing pigeon,
-do not listen to the message.
-Do you not know how much it hurts
-to die in this landscape?
+Paloma mensajera,
+no escuches el mensaje.
+¿No sabes lo que duele
+varar en este paraje?
 
-Weapon of two,
-one-sided dagger.
-Pick it with your hands
-and cover the blood with thread.
+Arma de dos,
+puñal de un solo filo.
+Cógelo con tus manos,
+cúbre la sangre con hilo.
 
-They say there are two
-but you only see one.
-The other for you
-is made of clothes and rags.
+Dicen que hay dos
+pero tú sólo ves una.
+la otra para tí
+es de trapo y costura
 
-**Run, go and tell them before it is too late,**
-**that I guide my steps and they guide my heart.**
+**Corre, ve y dile antes de que sea tarde**
+**que yo guío mis pasos y él mi corazón.**

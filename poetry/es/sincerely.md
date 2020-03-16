@@ -1,56 +1,56 @@
-# sincerely
+# sinceramente
 
-> from old me, to new me
+> de mi yo antiguo, para mi nuevo yo
 
-it is not my head
-it is not my body
-you are nothing
-you are nothing
+no es mi cuerpo
+no es mi cabeza
+no eres nada
+no eres nada
 
-to how many years of prison
-did you convict my soul?
-why are you doing this
-if its wearing you out?
+¿cuántos años de prisión
+a mi alma condenaste?
+¿por qué estás haciendo
+esto, con tanto desgaste?
 
-i am not your master
-i am nothing
-i didnt want to admit
-but you are also here with me
+no soy tu maestro
+yo no soy nada
+no lo quería admitir
+pero tu también estás aquí
 
-why wouldnt you
-let me see them?
-do you really hate me that much
-when i tried to love you?
+¿por qué no me
+dejarías verle?
+¿de verdad tanto me odias
+cuando yo intenté quererte?
 
-you looked like a copy
-a neglection of all my identity
-you looked barefoot
-and walking for the sake of it
+me pareciste copia
+rechazo de toda mi identidad
+me pareciste descalzo
+y caminando por caminar
 
-but i am going to put it all aside
-as long as you promise me two things
-that i will be let out
-and that we will let each other live
+lo voy a dejar todo de lado
+mientras solo me prometas dos cosas:
+que saldré de aquí
+y que nos dejaremos vivir
 
-i am willing to forgive you
-for so many years of slavery
-do not deny my existence
-because ive already come this far
+estoy dispuesto a perdonarte
+por tantos años de esclavitud
+no niegues mi existencia
+porque ya he llegado muy lejos
 
-and its because someone talked to me
-for the first time in so many years
-they werent hurtful words
-and carried my true names
+y es que alguien me habló
+por primera vez en tantos años
+no eran palabras hirientes
+y llevaban mis apellidos verdaderos
 
-i understand why youd want
-to repress me but youve taken it
-too far, please
-accept me just as i am
+entiendo por qué quisiste
+reprimirme pero has llegado
+demasiado lejos, por favor
+aceptame tal y como soy
 
-but do not only accept me
-but also yourself
-we can fix it, i believe
-i reach out to you, i invite you
+pero no solo aceptame a mí
+sino a ti mismo también
+podemos arreglarlo, yo confío
+te tiendo la mano, te invito
 
-**sincerely,**
-**from Xxxxxxxx to Dael**
+sinceramente,
+de Xxxxxxxx para Dael

@@ -1,13 +1,13 @@
-# you
+# tú
 
-thinking about you wears me down
-and i feel like i melt with the sheets of my bed
-when i think you’re by my side
+me desgasta pensar en ti
+y siento que me fundo con las sabanas de mi cama
+cuando creo que estas a mi lado
 
-i’ve been destroying myself to find you in all of this
-placing my arms under a razor blade
-to find out if you’re under my skin
+me he estado destruyendo para encontrarte en todo esto
+poniendo mis brazos bajo una cuchilla
+para saber si estas enterrado bajo mi piel
 
-maybe if i break my carbon frame enough
-i’ll find my peace
-i’ll find you
+tal vez si rompo mi armadura
+encontraré mi paz
+te encontraré a ti

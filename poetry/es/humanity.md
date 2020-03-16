@@ -1,49 +1,49 @@
-# humanity
+# humanidad
 
-Humanity is a convention
-none of us agreed to.
-Look at my face and tell me
-whether I am some kind of defaced monster.
+La humanidad es una convención
+que ninguno aceptamos.
+Mírame a la cara y dime
+si soy algún monstruo desfigurado.
 
-Stare at my lifeless gaze and tell me
-what is inside of me,
-if there is,
-and if there is, whether you call it human.
+Contempla mi mirada perdida y dime
+qué es lo que hay dentro de mi,
+si es que lo hay,
+y si lo hay, si lo llamas humano.
 
-What is being human but
-a set of rules,
-of prejudices, of conventions
-that they say we have to follow?
+¿Qué es ser humano más que
+un conjunto de normas,
+de prejuicios, de composturas
+que dicen que tenemos que seguir?
 
-What does it mean to be a person?
-Who says so?
-How much do they reign over my soul
-to tell me so?
+¿Qué significa ser persona?
+¿Quién lo dice?
+¿Cuánto reina sobre mi alma
+como para decirme?
 
-It is a big deceit,
-a deception,
-they only dehumanize
-when they feel they have to.
+Es una gran mentira,
+es una farsa,
+solo deshumanizan
+cuando a ellos les convenga.
 
-But they all were human,
-the murderers and the genocidal,
-and at the same time none of us is,
-only because they say so.
+Pero todos fueron humanos,
+los asesinos, los genocidas,
+y a la vez ninguno lo somos,
+sólo porque ellos lo digan.
 
-Then I am not human,
-I refuse, I will not bow down,
-anything but that.
-You won't hear me say I'm human.
+Pues yo no soy humano,
+me niego, no me doblego,
+cualquier cosa menos eso,
+no me oirás decir que soy humano confeso.
 
-I say I have wings
-but that you can't see them.
-I say I have fangs
-but that I won't bite you.
+Yo digo que tengo alas
+pero que no las veis.
+Yo digo que tengo colmillos
+pero que no os morderé.
 
-Feel my breeze,
-feel the power
-of having the domain of oneself
-and not get lost.
+Siente mi brisa,
+siente el poder
+de tener el dominio de uno ismo
+y no dejarse perder.
 
-**Because I am like a wolf to people**
-**and people are like wolves to me.**
+**Porque soy como lobo para la gente**
+**y la gente son como lobos para mí.**
