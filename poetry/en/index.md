@@ -32,7 +32,7 @@
 
 [to the childhood](childhood.html)
 [to the brahms' lullaby](brahms.html)
-[temple](temple.md)
+[temple](temple.html)
 
 ## heartbreak
 
