@@ -32,6 +32,8 @@
 
 [a la infancia](childhood.html)
 [a la nana de brahms](brahms.html)
+[al bosque](forest.html)
+[templo](temple.html)
 
 ## separación
 
