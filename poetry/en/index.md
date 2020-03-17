@@ -71,6 +71,7 @@
 5. [eternal body](angelic/body.html)
 6. [eternal soul](angelic/soul.html)
 7. [[interlude]](angelic/interlude.html)
+8. [broken pt. I](angelic/broken-1.html)
 
 ## other
 
