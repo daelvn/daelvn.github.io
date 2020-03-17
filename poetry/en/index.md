@@ -18,6 +18,7 @@
 [humanity](humanity.html)
 [sincerely](sincerely.html)
 [a pencil](pencil.html)
+[new state of mind](state.html)
 
 ## dreams
 

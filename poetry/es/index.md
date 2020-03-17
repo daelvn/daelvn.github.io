@@ -18,6 +18,7 @@
 [humanidad](humanity.html)
 [sinceramente](sincerely.html)
 [un lápiz](pencil.html)
+[nuevo estado mental](state.html)
 
 ## sueños
 
