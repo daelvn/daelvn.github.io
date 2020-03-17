@@ -75,6 +75,7 @@
 8. [roto pt. I](angelic/broken-1.html)
 9. [roto pt. II](angelic/broken-2.html)
 10. [[interludio ii]](angelic/interlude-2.html)
+11. [10.12.2019](angelic/10-12-2019.html)
 
 ## otros
 
