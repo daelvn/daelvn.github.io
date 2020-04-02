@@ -78,6 +78,10 @@
 9. [broken pt. II](angelic/broken-2.html)
 10. [[interlude ii]](angelic/interlude-2.html)
 11. [10.12.2019](angelic/10-12-2019.html)
+12. [source](angelic/source.html)
+13. [path](angelic/path.html)
+14. [feel](angelic/feel.html)
+15. [alone](angelic/alone.html)
 
 ## other
 

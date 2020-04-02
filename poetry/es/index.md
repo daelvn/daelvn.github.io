@@ -78,6 +78,10 @@
 9. [roto pt. II](angelic/broken-2.html)
 10. [[interludio ii]](angelic/interlude-2.html)
 11. [10.12.2019](angelic/10-12-2019.html)
+12. [fuente](angelic/source.html)
+13. [camino](angelic/path.html)
+14. [sentir](angelic/feel.html)
+15. [solo](angelic/alone.html)
 
 ## otros
 

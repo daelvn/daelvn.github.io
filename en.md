@@ -7,6 +7,7 @@
 [poetry](poetry/index.html)
 [blog](blog/index.html)
 [art](art/index.html)
+[book of prayers](prayers/index.html)
 
 ## music
 
